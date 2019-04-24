@@ -20,7 +20,7 @@
 ### 图片列表
 
 #### 李项林
-[图片1](http://ww1.sinaimg.cn/large/8a53ebb9ly1g2djy5uzrgj213z1gqqjp.jpg)
+- [可愁死我了](http://ww1.sinaimg.cn/large/8a53ebb9ly1g2djy5uzrgj213z1gqqjp.jpg)
 
 ### 同学
 
