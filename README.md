@@ -2,6 +2,7 @@
 ### 合影
 ![16班合影](https://ss1.bdstatic.com/70cFuXSh_Q1YnxGkpoWK1HF6hhy/it/u=4136022183,930768162&fm=26&gp=0.jpg)
 ![老师合影](http://ww1.sinaimg.cn/large/8a53ebb9ly1g2zghfc89dj21400u00w6.jpg)
+![黑板报](http://ww1.sinaimg.cn/large/8a53ebb9ly1g3907jnu1mj20im0dzdj0.jpg)
 ### 老师
 
 | 姓名      |学科 |头像| 简介  |图片列表|音频列表|视频列表|
